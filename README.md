@@ -7,3 +7,6 @@
 ### 总发行量 : 100,000,000,000,000 富婆
 ### 赐予V神 :  50,000,000,000,000 富婆 
 
+
+
+[telegram](https://t.me/joinchat/OxTzTAyUHa82ZTll)
